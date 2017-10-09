@@ -1,5 +1,7 @@
 # Augentraining
-Mein Augentrainingsplan Quelle: https://www.zeitblueten.com/augentraining-augenuebungen/
+Mein Augentrainingsplan
+
+Quelle: [www.zeitblueten.com/augentraining-augenuebungen](https://www.zeitblueten.com/augentraining-augenuebungen/)
 
 Um Kurzsichtigkeit vorzubeugen und die Augen vom Computerbildschirm zu entspannen.
 
