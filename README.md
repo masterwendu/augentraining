@@ -1,4 +1,7 @@
 # Augentraining
+
+_[see english translation here](https://github.com/masterwendu/augentraining/blob/master/README_EN.md)_
+
 Mein Augentrainingsplan
 
 Quelle: [www.zeitblueten.com/augentraining-augenuebungen](https://www.zeitblueten.com/augentraining-augenuebungen/)
