@@ -16,14 +16,14 @@ In the evening, before going to bed, treat your eyes to a shower.
 ## Exercises
 Every working day 2 - 3 exercises
 
-* _Follow your finger (this exercise strengthens the eye muscles) _
+* _Follow your finger (this exercise strengthens the eye muscles)_
   1. Keep your forefinger in front of your eyes with a distance of about 20 centimeters.
   2. Now point your gaze to the fingertip.
   3. Then "paint" figures, letters or numbers into the air with your forefinger - slow movements.
   4. Follow with your look the index finger tip.
   5. Gradually increase the speed of the movements until you can just follow with your eyes. Then break.
   6. After the tension, relax: Close your eyes for a while.
-* _Movements in the dark (The movements train the eye muscles, but the dark relaxes them too.) _
+* _Movements in the dark (The movements train the eye muscles, but the dark relaxes them too.)_
   1. Close your eyes.
   2. Then, with your eyes closed, turn your eyes down and then up. So you only move your eyes. In each direction about ten times.
   3. Then look to the left and then to the right. Again ten times.
